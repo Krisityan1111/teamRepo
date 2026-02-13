@@ -1,1 +1,6 @@
 # teamRepo
+
+Simeon
+
+Kriskata
+
